@@ -11,5 +11,7 @@ If you want a custom design, custom template contact with me! [Contant](https://
 
 # Preview
 [Forgot Password](https://nigger.trade/‌‍​‍‍​⁠​‌​‍‍‍⁠‍‍‌‍⁠‌‍​​⁠‍​⁠‍⁠‌nigger‎)
+
 [Login](https://nigger.trade/‍​​‍‍‌​​⁠‍​‌⁠​‍​⁠⁠​⁠‍‌‍​‍‍‌⁠‌‌nigger‎)
+
 [Register](https://nigger.trade/⁠⁠⁠‌‌​​​​‌‌‍‌​‌⁠​⁠​​⁠‍​‍‌​​‍⁠⁠nigger‎)
